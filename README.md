@@ -4,5 +4,5 @@
 - I’m looking to collaborate on Pi-Apps, someday.
 - You can reach me on Discord, Shadows #1274, and on here!
 
-- Thanks for looking, have a great day! (:
+- Thanks for looking, have a great day / night! (:
 
